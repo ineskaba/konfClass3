@@ -1,0 +1,1 @@
+# konfClass3
